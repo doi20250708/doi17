@@ -10,4 +10,4 @@
 
 页面聚合大量国产亚洲字幕资源，适合喜爱中文内容的用户群体。涵盖剧情生活片、日韩演绎、福利视频等热门分类。支持高清在线播放，画质清晰不卡顿，所有影片无需登录即可观看，每日更新确保内容持续新鲜。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi17 ）</span>
